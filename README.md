@@ -9,6 +9,6 @@ I believe the main purpose of technology and development is to create business s
 - 🌱  I’m currently learning technology, marketing and communication.
 - 🚀  I’m looking to collaborate on big challenges.
 - 🎸  Self-taught guitar player.
-- 😄  I enjoy RPGs, triller movies, hard rock, coffee and magic tricks!
+- 😄  I enjoy RPGs, thriller movies, hard rock, coffee and magic tricks!
 
 Feel free to reach me for any reason, I'm always open to help and share knowledge.
